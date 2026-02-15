@@ -1,0 +1,1 @@
+wet gw lupa naronya
